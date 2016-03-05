@@ -8,3 +8,5 @@ Ovo je vreme paklenih vozaca
 da da da to sam ja malo sam se promenila
 
 al nije nista
+
+al je tek ovo zeznuto
